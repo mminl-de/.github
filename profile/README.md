@@ -1,1 +1,1 @@
-Mein Mercedes ist Neon-Lila.
+Welche Farbe hat dein Mercedes?
